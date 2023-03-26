@@ -1,6 +1,7 @@
 # Bem vindo ao meu perfil
 
 Olá, me chamo Anatole
+![black-call-of-duty-ops-best-hd-1145401](https://user-images.githubusercontent.com/128992333/227791547-871d3cb6-3cbd-438f-b21d-0b69eba7034b.jpg)
 
 ## meus hobbies
 
